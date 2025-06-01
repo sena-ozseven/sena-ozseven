@@ -3,4 +3,3 @@
 
 - 📫 gulozseven@gmail.com
 - 😄 she/they
-- ⚡ Fun fact: I GOT ACCEPTED TO UVA ILLC YOO!!
